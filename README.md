@@ -1,1 +1,1 @@
-# en-pickthall
+# Mohammed Marmaduke William Pickthal
